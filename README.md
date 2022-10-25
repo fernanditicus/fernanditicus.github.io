@@ -1,1 +1,0 @@
-# fernanditicus.github.io
